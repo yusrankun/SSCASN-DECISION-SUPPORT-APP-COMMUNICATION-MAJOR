@@ -114,7 +114,7 @@ This project is suitable for:
 
 ## 👨‍💻 Author
 
-Created by: **[Your Name]**
+Created by: **Zekri hehehe**
 
 ---
 
